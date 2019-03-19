@@ -3,7 +3,7 @@
     
 ## Content
 
-[Chapter01 - version 1.1](https://WanyitYong.github.io/github-story-2019/chapter01)
+[Chapter01 - version 1.2](https://WanyitYong.github.io/github-story-2019/chapter01)
 
 ## Release
 
