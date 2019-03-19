@@ -1,5 +1,5 @@
 # Where has the Spring gone?
-## Chapter 01
+## Chapter 01 : THe story begin...
 
 &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;This story all begins with a disappeared chicken during an ordinary spring. The chicken vanished from the farm, the village, the world without any sign. The owner of the chicken, Geraldine which is a timid but insatiable old woman judged that her neighbour, Myrtle stole the chicken. 
 <br/><br/>
@@ -8,6 +8,8 @@
 &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;Before the sun gone from the sky, Geraldine kept thinking that should she face to face met with Myrtle about the chicken that vanish. Even though is only a chicken, if not deal this problem within today, it’s going to be forever too late for tomorrow. However, Geraldine still does not have the bravery to talk with her neighbour, so she decided to work in different way that taught by her passed away husband. She told everyone she met in the village with following word such as, “Did you saw my chicken?”, “Hmm, my chicken was gone this evening without any symptom.” or even “I notice that my chicken last known spot was around my neighbour house.”. She slowly moved herself to her neighbour house, and shout loudly “Who stolen my chicken?” for several times. 
 <br/><br/>
 &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;“What happened, Geraldine?” asked Myrtle after heard some noise from outside. “Not sure who has stolen my chicken this evening.”, replied by Geraldine with a feeling of terrified by her neighbour and even spoke rudely to sound that she's fearless “How’s my chicken coming back if someone already killed it!” when Myrtle told her that the chicken will come back after a while. 
-
-<br/>
+<br/><br/>
 To be continued...
+<br/><br/>
+[Back to homepage](https://wanyityong.github.io/github-story-2019/) 
+
