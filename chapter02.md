@@ -10,3 +10,7 @@
  &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;“I was framed up by her about the missing chicken.”, shouted Myrtle to the crowd, after that she said to the people “Since everyone is here, I put my word down. If I stole her chicken, I will suicide now in front of her.” Geraldine sit up and pointed to Myrtle “Well, if you have stolen my chicken, your son will died in this year. If not, my son then will die this year.” “Sure, let’s see whose son will dead this year then.”, replied Myrtle then went back to her own house. Geraldine now feels like she had won the fight and sleep over while crying. 
  <br/><br/>
  &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;The next morning day, the chicken came back with a wet feather and a red ribbon on its leg. She quietly brings the chicken back to home and kill it. After that day, she feels guilty to Myrtle until she realised that even her neighbour didn’t steal the chicken but doesn’t mean there are no problem on her personality. She still remembers the blood taste in her mouth when she was slapped by Myrtle. Since then, they never talk to each other and tied a red ribbon on every chicken leg with the word “who stole the chicken, DIED!”
+ <br/><br/>
+ To be continued...
+ <br/><br/>
+ [Back to homepage](README.md)

@@ -11,5 +11,7 @@
 <br/><br/>
 To be continued...
 <br/><br/>
+[Chapter 02](chapter02.md)
+
 [Back to homepage](README.md) 
 
