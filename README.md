@@ -4,7 +4,7 @@
 ## Content
 
 [Chapter01 - version 1.3](chapter01.md)
-
+[Chapter02 - version 1.1](chapter02.md)
 ## Release
 
 [Release Version 1.0](https://github.com/WanyitYong/github-story-2019/releases/tag/v1.0)
