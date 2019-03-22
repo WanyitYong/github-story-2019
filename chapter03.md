@@ -27,6 +27,8 @@ Geraldine witnessed from the beginning and she gloat over about it and keep mumb
 <br/><br/>
 &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;The end of the day, when Myrtle was on the way back to home from working, she heard the news. She feels hopeless and fainted when she gets home, then she was sent to hospital for medical care.
 <br/><br/>
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;People saying that the curse of the stolen chicken. This village then using this story to warn the child that don't telling lies and simply put the words.
+<br/><br/>
 The end...
 <br/><br/>
 [Chapter 02](chapter02.md)
