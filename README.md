@@ -13,6 +13,8 @@
 [Release Version 1.0](https://github.com/WanyitYong/github-story-2019/releases/tag/v1.0)
 
 [Release Version 2.0](https://github.com/WanyitYong/github-story-2019/releases/tag/v2.0)
+##Issues
+
 ## Support
 If interested, you can just head over by the following link to look about the story online.<br />
     [My git story: Where has the Spring gone?](https://WanyitYong.github.io/github-story-2019)
