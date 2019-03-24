@@ -1,5 +1,5 @@
 # Where has the Spring gone?
-## Chapter 01 : THe story begin...
+## Chapter 01 : The story begin...
 
 &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;This story all begins with a disappeared chicken during an ordinary spring. The chicken vanished from the farm, the village, the world without any sign. The owner of the chicken, Geraldine which is a timid but insatiable old woman judged that her neighbour, Myrtle stole the chicken. 
 <br/><br/>
