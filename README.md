@@ -16,7 +16,7 @@
 
 [Release Version 3.0](https://github.com/WanyitYong/github-story-2019/releases/tag/v3.0)
 
-##Issues
+## Issues
 
 [Issue 01: Alternative Ending](https://github.com/WanyitYong/github-story-2019/issues/1)
 
