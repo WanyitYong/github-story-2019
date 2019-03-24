@@ -27,30 +27,6 @@ Geraldine witnessed from the beginning and she gloat over about it and keep mumb
 <br/><br/>
 &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;The end of the day, when Myrtle was on the way back to home from working, she heard the news. She feels hopeless and fainted when she gets home, then she was sent to hospital for medical care.
 <br/><br/>
-&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;Time flies by day, Easter is coming. Everyone’s back from the city to celebrate this big day with their family. However, Geraldine still haven’t got any information from Jack. She tried to call Jack’s phone number, but from the receiver, she only got the message that Jack’s number already been cut. Due to the misconnection with her son, she started suffering from insomnia and felt worried about her son met with accident. Her mind was brought back to the day that she and her neighbour cursing their son about the missing chicken. Finally, she got a message from a villager that Jack will be back the day before Easter as he was worked hard to earn more money. The day gone until Easter eve, Geraldine was waiting her son outside the house. She just wanted to make sure that she can greets to her son at the first moment. However, Jack wasn’t show up until around midnight. That night, Jack finally came home, he looked pale and tired, not even had the strength to walk. 
-<br/><br/>
-&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;Geraldine feels really happy and said, “Welcome home, Jack. Are you hungry? I can make you some food.”
-<br/><br/>
-&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;“I’m back, mother.” said Jack after that he told Geraldine, “I feel ill, will just have a rest first. Just wake me up when the food is ready.” He went back to his room after finishing talking.
-<br/><br/>
-&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;Geraldine went to the kitchen and start to prepare some porridge as Jack looked sick. When everything is done, she went into Jack’s room to wake him up for late dinner. However, Jack will never able to answer her anymore, he passed away that night in the dream. One week later, Geraldine got the report from the doctor, the cause of Jack’s death is due to radiation. Jack was worked too many hours, and the protection of radiance was not matched the qualification. Geraldine insist is all her fault, after that she slowly walks to her neighbor house like a coveted old woman. She sits on the floor and said to her neighbor, “Is all my fault, I shouldn’t blame you. This all happening to my son is all because of me.” “Geraldine, just let the time bring the sadness away.”, said Myrtle and sits beside Geraldine holding her hand. They both stop talking and start crying silently. From the village, the radio still playing “Halo” by Beyoncé:
-<br/><br/>
-&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;Everywhere I’m looking now
-<br/>
-&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;I’m surrounded by your embrace
-<br/>
-&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;Baby I can see your halo
-<br/>
-&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;You know you’re my saving grace
-<br/>
-&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;You’re everything I need and more
-<br/>
-&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;It’s written all over your face
-<br/>
-&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;Baby I can feel your halo
-<br/>
-&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;Pray it won’t fade away
-<br/><br/>
 &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;People saying that the curse of the stolen chicken. This village then using this story to warn the child that don't telling lies and simply put the words.
 <br/><br/>
 The end...

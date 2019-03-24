@@ -3,11 +3,11 @@
     
 ## Content
 
-[Chapter01 - version 1.3](chapter01.md)
+[Chapter01](chapter01.md)
 
-[Chapter02 - version 1.3](chapter02.md)
+[Chapter02](chapter02.md)
 
-[Chapter03(alternative ending)](chapter03.md)
+[Chapter03](chapter03.md)
 ## Release
 
 [Release Version 1.0](https://github.com/WanyitYong/github-story-2019/releases/tag/v1.0)
