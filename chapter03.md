@@ -30,7 +30,7 @@ Geraldine witnessed from the beginning and she gloat over about it and keep mumb
 &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;People saying that the curse of the stolen chicken. This village then using this story to warn the child that don't telling lies and simply put the words.
 <br/><br/>
 The end...
- 
+  
 [Chapter01](chapter01.md)
 
 [Chapter02](chapter02.md) 

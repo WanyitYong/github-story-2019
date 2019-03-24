@@ -10,7 +10,7 @@
 &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;“What happened, Geraldine?” asked Myrtle after heard some noise from outside. “Not sure who has stolen my chicken this evening.”, replied by Geraldine with a feeling of terrified by her neighbour and even spoke rudely to sound that she's fearless “How’s my chicken coming back if someone already killed it!” when Myrtle told her that the chicken will come back after a while. 
 <br/><br/>
 To be continued...
-<br/><br/>
+
 [Chapter 02](chapter02.md)
 
 [Chapter 03](chapter03.md)
