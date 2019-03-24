@@ -1,5 +1,5 @@
 # Where has the Spring gone?
-## Chapter 03
+## Chapter 03  : What happen to son
 
 &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;Time passed faster than imagine, the village has arrived the big day, St. Patrick’s Day. The villagers are excited for the returning of Myrtle’s son, William. William drove a luxury car with a lot of souvenir from the city for the villagers. Villagers spotted a nice-looking and attractive woman is sitting on the co-driver seat, right beside William, that’s his fiancée, they assumed. 
 <br/><br/>
@@ -31,8 +31,8 @@ Geraldine witnessed from the beginning and she gloat over about it and keep mumb
 <br/><br/>
 The end...
   
-[Chapter01](chapter01.md)
+[Chapter01 : The story begin](chapter01.md)
 
-[Chapter02](chapter02.md) 
+[Chapter02 : The Curse](chapter02.md) 
 
 [Back to homepage](README.md)
