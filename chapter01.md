@@ -13,5 +13,7 @@ To be continued...
 <br/><br/>
 [Chapter 02](chapter02.md)
 
+[Chapter 03 - alternative ending](chapter03.md)
+
 [Back to homepage](README.md) 
 
