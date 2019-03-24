@@ -1,5 +1,5 @@
 # Where has the Spring gone?
-## Chapter 02
+## Chapter 02: The Curse
 
 &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;Myrtle had a feeling that her ignorance neighbour has suspected she the one who stolen the chicken. “Are you thinking that I’m the one who stole your chicken? When did I eat your chicken? Please let it be clearly now before you leave.”, refused by Myrtle with a fierce sound. 
 <br/><br/>
@@ -13,8 +13,8 @@
  <br/><br/>
  To be continued...
  <br/><br/>
- [Chapter 01](chapter01.md)
+ [Chapter 01: The story begin](chapter01.md)
  
- [Chapter 03](chapter03.md)
+ [Chapter 03: What happen to son](chapter03.md)
  
  [Back to homepage](README.md)

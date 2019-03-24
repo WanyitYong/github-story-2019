@@ -3,16 +3,18 @@
     
 ## Content
  
-[Chapter0 : The story begin...](chapter01.md)
+[Chapter01 : The story begin...](chapter01.md)
 
-[Chapter02](chapter02.md)
+[Chapter02 : The Curse](chapter02.md)
 
-[Chapter03](chapter03.md)
+[Chapter03 : What happen to son](chapter03.md)
 ## Release
 
 [Release Version 1.0](https://github.com/WanyitYong/github-story-2019/releases/tag/v1.0)
 
 [Release Version 2.0](https://github.com/WanyitYong/github-story-2019/releases/tag/v2.0)
+
+[Release Version 3.0](https://github.com/WanyitYong/github-story-2019/releases/tag/v3.0)
 
 ##Issues
 [Issue 01: Alternative Ending](https://github.com/WanyitYong/github-story-2019/issues/1)

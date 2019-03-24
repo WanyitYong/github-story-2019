@@ -11,9 +11,9 @@
 <br/><br/>
 To be continued...
 <br/><br/>
-[Chapter 02](chapter02.md)
+[Chapter 02: The Curse](chapter02.md)
 
-[Chapter 03](chapter03.md)
+[Chapter 03: What happen to son](chapter03.md)
 
 [Back to homepage](README.md) 
 
