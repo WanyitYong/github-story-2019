@@ -20,6 +20,8 @@
 [Issue 01: Alternative Ending](https://github.com/WanyitYong/github-story-2019/issues/1)
 
 [Issue 02: Link Missing](https://github.com/WanyitYong/github-story-2019/issues/2)
+
+[Issue 03: Chapter Name Missing](https://github.com/WanyitYong/github-story-2019/issues/3)
 ## Support
 If interested, you can just head over by the following link to look about the story online.<br />
     [My git story: Where has the Spring gone?](https://WanyitYong.github.io/github-story-2019)
