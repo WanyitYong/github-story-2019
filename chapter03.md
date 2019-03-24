@@ -31,6 +31,9 @@ Geraldine witnessed from the beginning and she gloat over about it and keep mumb
 <br/><br/>
 The end...
 <br/><br/>
+
+[Chapter 01](chapter01.md)
+
 [Chapter 02](chapter02.md)
   
 [Back to homepage](README.md)
